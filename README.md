@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ..rsdgyerhyg
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .jgbfjudfgbdf
-- 😄 Pronouns: ...hgmllewrfwefbfbe
+- 😄 Pronouns: ...holkijk
 - ⚡ Fun fact: ...
 Cindere3la/Cindere3la is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes
