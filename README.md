@@ -2,7 +2,7 @@
 - 👀 I’m interested in speak on many topic)
 - 🌱 I’m currently learning ..rfdgrfgre
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me .ibfdgewd
+- 📫 How to reach me .igfsngbdgsb
 - 😄 Pronouns: ...holkijk
 - ⚡ Fun fact: ...
 Cindere3la/Cindere3la is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
