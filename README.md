@@ -1,6 +1,6 @@
 d- 👋 Hi, I’m Cindere3la
 - 👀 I’m interested in speak on many topic)
-- 🌱 I’m currently learning ..ukydjyjhd
+- 🌱 I’m currently learning ..hyjtngtdshb
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .futydrtrgyh
 - 😄 Pronouns: ...tgiyurudtgyhuj
